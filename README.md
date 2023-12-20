@@ -3,7 +3,7 @@
 
 > [!NOTE]
 > # [Discord](https://discord.gg/V8DtNejqKc)  ~~ Support
-> # [Preview]()
+> # [Preview](https://youtu.be/h1lJ-nsbo2A)
 
 > [!IMPORTANT]
 > Dependencies:
